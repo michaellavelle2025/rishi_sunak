@@ -6,4 +6,4 @@
 
 * [How Rishi Sunak became prime minister: three days in three minutes](https://youtube.com/watch?v=2XDs6VKdehc&list=PLf2hNFDbLeZe2Z_SnQsCU-YPmf5NYgdAH&index=9&pp=gAQBiAQB)
   
-
+* Rishi Sunak & [Elon Musk](https://github.com/michaellavelle2025/elon_musk) : [Talk AI, Tech & the Future](https://youtube.com/watch?v=R2meHtrO1n8)
